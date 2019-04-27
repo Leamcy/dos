@@ -1,0 +1,2 @@
+# dos
+Filósofo, psicólogo, MC.
